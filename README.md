@@ -1,16 +1,21 @@
-### Hi there 👋
+Love the earth and sun and the animals,
+Despise riches, give alms to everyone that asks,
+Stand up for the stupid and crazy,
+Devote your income and labor to others,
+Hate tyrants, argue not concerning God,
+Have patience and indulgence toward the people.
 
-<!--
-**davidimoore/davidimoore** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Take off your hat to nothing known or unknown,
+or to any man or number of men,
+Go freely with powerful uneducated persons,
+And with the young, and with the mothers or families.
 
-Here are some ideas to get you started:
+Re-examine all you have been told
+in school or church or in any book,
+Dismiss whatever insults your own soul;
+And your very flesh shall be a great poem…
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+And have the richest fluency, not only in its words,
+But in the silent lines of its lips and face,
+And between the lashes of your eyes,
+and In every motion and joint of your body.
